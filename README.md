@@ -1,0 +1,2 @@
+# Kizilotesi_Alev_Algilama_Sensoru_Projesi
+ Kizilotesi_Alev_Algilama_Sensoru_Projesi
